@@ -16,5 +16,5 @@
 - Black people were treated as white indentured slaves for some time until they became a reliable and pliable force of labor, leading Virginia to start passing slave codes
 - Any free woman who married an enslaved man became enslaved after Maryland passed a law
 - Slaves who were baptized no longer became free after 1667
-- In 1712, South Carolina declared all non-white people in America who had ever been sold or enslaved are slaves and will forever be slaves
+- In 1712, South Carolina declared all non-white people in America who had ever been sold or enslaved are slaves and will forever be slaves.
 
