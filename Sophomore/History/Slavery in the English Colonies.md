@@ -1,13 +1,20 @@
 - The British War Vessel "The White Lion" arrived at Jamestown with slaves taken from a Portuguese ship
 - It became common practice to have slaves
-- John Punch was a runaway slave, who was then convicted to work for his master for a full lifetime
-- Black children's status mirrored that of their mother's. (Children of enslaved mothers were enslaved from birth, children of free mothers were free by birth. The father had no role in child status)
+- John Punch was a runaway slave who was then convicted to work for his master for a full lifetime
+- Black children's status mirrored that of their mothers. (In 1662, children of enslaved mothers were enslaved from birth; children of free mothers were free by birth. The father had no role in the child's status.)
 - Slaves in Virginia grew from 23 to over 300 within 23 years
-- ==Indentured Servants== - white english immigrants who had a contract that bound them to work for a certain amount of time in exchange for travel and living costs 
+- ==Indentured Servants== - white English immigrants who had a contract that bound them to work for a certain amount of time in exchange for travel and living costs 
 - Virginia reached a population of 10,000 in the early 1800s
-- King James I revoked the Virginia Company's charter around this time, and the Virginia Company disappeared but the colony stood
+- King James I revoked the Virginia Company's charter around this time, and the Virginia Company disappeared, but the colony stood
 - Slavery became part of Virginia's colony
-- In the mid-17th century the slave trade boomed between Caribbean islands and southern colonies
-- The transatlantic slave trade was responsible for the immigration of over 11 million slaves before ending in the 19th century (around 1800s) 
-- Middle passage - long transatlantic journey to the Americas or the Carribean
+- In the mid-17th century, the slave trade boomed between Caribbean islands and southern colonies
+- The transatlantic slave trade was responsible for the immigration of over 11 million slaves before ending in the 19th century (around the 1800s) 
+- ==Middle passage== - long transatlantic journey to the Americas or the Caribbean. This journey took 3 - 4 months, with up to 600 Africans chained up deep in the ship with little to no food, and many deaths
+- Olaadah Equiano was a Nigerian 11 boy who escaped the slave trade and wrote an autobiography about it
+- The Royal African Company of England monopolized the slave trade
+- Rival companies reduced the price of Africans and increased the number of slaves being traded, which increased the amount of slaves going directly into America (25,000 lived in America in 1700; in 60 years, it was 250,000) 
+- Black people were treated as white indentured slaves for some time until they became a reliable and pliable force of labor, leading Virginia to start passing slave codes
+- Any free woman who married an enslaved man became enslaved after Maryland passed a law
+- Slaves who were baptized no longer became free after 1667
+- In 1712, South Carolina declared all non-white people in America who had ever been sold or enslaved are slaves and will forever be slaves
 
