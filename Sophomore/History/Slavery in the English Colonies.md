@@ -1,0 +1,13 @@
+- The British War Vessel "The White Lion" arrived at Jamestown with slaves taken from a Portuguese ship
+- It became common practice to have slaves
+- John Punch was a runaway slave, who was then convicted to work for his master for a full lifetime
+- Black children's status mirrored that of their mother's. (Children of enslaved mothers were enslaved from birth, children of free mothers were free by birth. The father had no role in child status)
+- Slaves in Virginia grew from 23 to over 300 within 23 years
+- ==Indentured Servants== - white english immigrants who had a contract that bound them to work for a certain amount of time in exchange for travel and living costs 
+- Virginia reached a population of 10,000 in the early 1800s
+- King James I revoked the Virginia Company's charter around this time, and the Virginia Company disappeared but the colony stood
+- Slavery became part of Virginia's colony
+- In the mid-17th century the slave trade boomed between Caribbean islands and southern colonies
+- The transatlantic slave trade was responsible for the immigration of over 11 million slaves before ending in the 19th century (around 1800s) 
+- Middle passage - long transatlantic journey to the Americas or the Carribean
+
