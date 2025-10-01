@@ -1,1 +1,9 @@
--  
+-  Religious toleration began to increase greatly during the 1700s (18th century)
+- Different cultures and religions were brought from basically everyone who was in America at the time
+	- Slaves
+	- Dutch 
+	- Roman Catholics (severely prosecuted especially in Maryland)
+	- Muslisms
+	- Jewish
+- ==Jeremiad== - A sermon of despair at society’s lost moral virtue, usually warning about dire consequences in the world and the afterlife.
+- Great Awakening - The first major American religious revival, begun in earnest in the 1730s.
