@@ -24,3 +24,4 @@
 	- Then Princeton
 	- Then Columbia, formed for secular knowledge
 - New laws such as trials by jury were introduced
+- Cotton Mather credited a slave for being the first to be cured of smallpox
