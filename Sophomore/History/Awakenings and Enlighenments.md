@@ -17,3 +17,10 @@
 - A major reason for the rise of literacy rate was the spread of the printing press.
 - Massachusetts passed a law in 1647 requiring a school in every town
 - The Quakers and other religous groups supported church schools, women had dame (all-girl) schools
+- Slaves couldn't learn
+- Harvard was the first American college made for theologians founded by Puritans named after a minister, John Harvard
+- Congregationalists didn't like how Harvard was a liberal religious building, so they made Yale
+	- Then the College of New Jersey
+	- Then Princeton
+	- Then Columbia, formed for secular knowledge
+- New laws such as trials by jury were introduced
