@@ -6,4 +6,6 @@
 	- Muslisms
 	- Jewish
 - ==Jeremiad== - A sermon of despair at society’s lost moral virtue, usually warning about dire consequences in the world and the afterlife.
-- Great Awakening - The first major American religious revival, begun in earnest in the 1730s.
+- ==Great Awakening== - The first major American religious revival, begun in earnest in the 1730s.
+- Evangelists like Jonathan Edwards (a great preacher) helped change the doctrines, challenging things such as easy salvation, predestination, and God's sovereignty
+- 
