@@ -14,8 +14,12 @@
 	- White violence, illness, supply shortages, and internal divisions caused the end of the native people revolt
 	- Proclamation of 1763 eventually got dismissed cus George Washington thought it was lame (Called it a "temporary expedient to quiet the minds of the Indians")
 - Currency Act of 1764 by the British required colonial assemblies to stop issuing paper money
-- Sugar Act prevented exports of timber and iron to countries other than Britian, and reduced duty on French molasses to prevent smuggling
-- Mutiny Act of 1765 required colonists to help provision and maintain the British Army
-- Small civil war broke out because "Regulators" (farmers) resisted against the taxes
-- Stamp Act of 1765 
+	- Sugar Act prevented exports of timber and iron to countries other than Britian, and reduced duty on French molasses to prevent smuggling
+	- Mutiny Act of 1765 required colonists to help provision and maintain the British Army
+	- Small civil war broke out because "Regulators" (farmers) resisted against the taxes
+- Stamp Act of 1765 imposed by Grenville caused detrimental effects to the colonists by taxing all printed documents. This allowed the British to collect 10x more revenue from the colonists
+	- Patrick Henry created the Virginia Resolves which states that colonists could only be taxed by their own representatives, that colonists have the same rights as the British, and other things
+	- Sons of Liberty and other mobs rose up against the Act
+	- The colonists boycotted British goods
+	- The Marquis of Rockingham repealed the Stamp Act, but he also established the Declaratory Act which granted Parliament power over the colonists in any and all cases
 ## Part 2
