@@ -23,3 +23,24 @@
 	- The colonists boycotted British goods
 	- The Marquis of Rockingham repealed the Stamp Act, but he also established the Declaratory Act which granted Parliament power over the colonists in any and all cases
 ## Part 2
+
+-  Colonies resented the Townshend Duties, which applied tax on external items instead of internal (lead, paint, paper, tea)
+	- Boston was angry because the Duties stopped the smuggling business, this led to a Boston boycott of all the items the Townshend Duties put a tax on 
+	- After Charles Townshend died, the Duties were repealed 
+- The harrassment of customs officers got really bad in Boston.
+	- dockworkers, liberty boys, and others pelted the sentries at the customs house
+	- some confusion led to British soldiers shooting and killing 5 of the rioters, called the "Boston Massacre" by the locals
+	- Samuel Adams attempted to make a "committees of correspondence" in order to publicize grievances against Britain
+- British political philosophy called for three classes/elements of society: Monarchy, Aristocracy, and the people.
+	- Some evidence suggests colonists were less mad about the actual taxation, but about the lack of representation behind it
+	- Though this was the case, things like Parliament were not made to have members from all parts of the empire, but to represent the empire as a whole, this is called "virtual representation" Colonists also practiced this
+- Pamphlets of resistance were often distributed in places where political discuss occurred in the colonies, particularly in taverns and the likes
+	- Resentment of the navigation acts was prominent
+- The Tea Act allowed the British East India company to export tea to the colonies with no taxes
+	- British thought the colonists would like it, colonists said its unfair to merchants and boycotted the tea
+	- Women of Liberty was a new formed organization leading the boycott against tea
+	- 3 groups of 50 masked men went aboard British ships and threw their tea into the harbor. This was called the Boston Tea Party
+	- The Coercive Acts closed the Boston ports, reduced the Massachusetts self-government power, allowed royal officers in America to be tried for crimes in other colonies or in Britain, and made the colonists quarter British troops. This was known as the Intolerable Acts in America
+	- 51 women signed to their "sincere adherence" to anti-British resolutions and to support the public good
+
+
